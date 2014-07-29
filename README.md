@@ -1,7 +1,7 @@
 colossal-markov
 ===============
 
-Markov-chain-generated [Colossal](http://www.thisiscolossal.com/) titles. [Try it here.](http://www.thisiscolossal.com/)
+Markov-chain-generated [Colossal](http://www.thisiscolossal.com/) titles. [Try it here.](http://tmaybe.github.io/colossal-markov/)
 
 Markov chain code by [Jason Bury](https://github.com/dospromptman) as demonstrated here: http://www.soliantconsulting.com/blog/2013/02/draft-title-generator-using-markov-chains
 
