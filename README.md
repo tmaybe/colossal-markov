@@ -21,3 +21,7 @@ Large-scale Graphite Portraits of Trash by Juan Fontanive
 Haunting Ceramic Faces of Instruments Built Entirely from Arrays of the Skies Above California by ‘Sandcastle Matt’
 
 Unlikely: The Monumental 11-Acre Portrait Booth
+
+Vietnamese Landscapes Formed From Marble Blocks of Bone, Wood, Fossils and the American Streets of Chalkboards by Ron Isaacs
+
+The Impossible Geometry of Reflective Vivian Maier Self-Portraits
