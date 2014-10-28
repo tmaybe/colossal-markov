@@ -27,3 +27,12 @@ Vietnamese Landscapes Formed From Marble Blocks of Bone, Wood, Fossils and the A
 The Impossible Geometry of Reflective Vivian Maier Self-Portraits
 
 Felted Veggies Dangle from a Roller Coaster
+
+Artist Erdal Enci Clones Himself to Blow Perfect Shadow Sculptures
+
+Designer Marcel Dunger Creates Unsettling Two-Faced Portraits of Speakers That Sail Through a Breathtaking Aerial Dance
+
+Man Has Unannounced Art Museum
+
+Uncanny Ability to Commemorate Peace Day
+
