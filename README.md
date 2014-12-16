@@ -36,3 +36,8 @@ Man Has Unannounced Art Museum
 
 Uncanny Ability to Commemorate Peace Day
 
+9,000 Fallen Tree Branches Dripping with Face Paint
+
+Desert of People Skewered with a Train
+
+Retro Technology Including a Skateboarding Skeleton Emerges from Wood
