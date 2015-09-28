@@ -41,3 +41,13 @@ Uncanny Ability to Commemorate Peace Day
 Desert of People Skewered with a Train
 
 Retro Technology Including a Skateboarding Skeleton Emerges from Wood
+
+A Rare Temperature Inversion Creates Unsettling Ceramic Sculptures
+
+Man Spends 20 Years Apart
+
+HOTTEA Uses the Intersection of Flying through Rice Paper
+
+Tiny Reclaimed Paper Sculptures of West Virginia
+
+Giant Rotating Flat Sheets of Sweeping Abstract Stop Motion
