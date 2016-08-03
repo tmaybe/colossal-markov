@@ -51,3 +51,5 @@ HOTTEA Uses the Intersection of Flying through Rice Paper
 Tiny Reclaimed Paper Sculptures of West Virginia
 
 Giant Rotating Flat Sheets of Sweeping Abstract Stop Motion
+
+Embroidered Silhouettes Painted with Oil Reflect the Soviet Spaceship
