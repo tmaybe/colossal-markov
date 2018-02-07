@@ -53,3 +53,7 @@ Tiny Reclaimed Paper Sculptures of West Virginia
 Giant Rotating Flat Sheets of Sweeping Abstract Stop Motion
 
 Embroidered Silhouettes Painted with Oil Reflect the Soviet Spaceship
+
+Toilet Paper Birds and Foreboding Landscapes
+
+Woven Willow Figure Enclosed Within Wood
